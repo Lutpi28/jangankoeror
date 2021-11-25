@@ -1,0 +1,2 @@
+# jangankoeror
+minta di delet
